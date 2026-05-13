@@ -1,4 +1,4 @@
-# 
+# Figma for macOS premium Script: AI-assisted design & AI upscaling is the best Figma for macOS script, featuring AI-assisted design and AI upscaling. Safe, efficient, and optimized
 
 
 
